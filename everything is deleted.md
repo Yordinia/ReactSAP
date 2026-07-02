@@ -1,0 +1,7 @@
+# everything is deleted.md
+
+# 😀😀😢
+
+```
+
+```
